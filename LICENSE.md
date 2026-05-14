@@ -1,4 +1,4 @@
-# 
+# Enhance Atom for PC | Atom for Windows with professional Atom for PC | Atom for Windows Theme | live-share + syntax-highlighting, the #1 theme. Includes live-share and
 
 
 
